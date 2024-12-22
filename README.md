@@ -6,6 +6,11 @@
 
 - hiyahiya its me svell! i go by like, 5 names or so! like zuhrah, falcon, yuu and zuu! ![ef949a5c](https://github.com/user-attachments/assets/939a26a6-184f-45fa-837d-db08a67c0332)
 - any of age could int!! :3 im pretty friendly w all ages ! ^_^![45548e65](https://github.com/user-attachments/assets/7c21a1b0-f55e-419e-a360-b863b0615f26)
-- ALWAYS offtab so... whisp to interact w me ! !! 
+- ALWAYS offtab so... whisp to interact w me ! !!
+# DNI !!
+
+- basic dni criteria
+- if you like vivziepop or aynthing related to her.. sozz!!
+## THIS THING IS STILL A WIP!!!
 
 
